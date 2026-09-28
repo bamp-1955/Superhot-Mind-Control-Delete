@@ -218,4 +218,4 @@ SUPERHOT: MIND CONTROL DELETE is offered as the full free version, with all feat
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 ---
-**Last updated:** 2026-09-28 06:26:05 UTC
+**Last updated:** 2026-09-28 15:04:44 UTC
